@@ -2,6 +2,15 @@
 
 Meu nome é Henry Zolla
 
+sou lindo
+
+jogo bola
+
+sou bonito
+
+é isso
+
+
 -Trabalho em uma empresa de cosmeticos
 
 ## Você pode entrar em contato comigo 📫
@@ -10,4 +19,4 @@ Meu nome é Henry Zolla
 
 @henryzolla_
 
-![](https://media1.tenor.com/m/3jMZUZyY1QoAAAAC/hihi.gif)
+![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExdTV1eGpybXd3MGUwbmk2bHBnbW9maXNnbGRhNzVmNWExb3BwcHZreCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/68g3ulhhV06yi900Wt/giphy.webp)
